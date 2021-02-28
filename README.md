@@ -1,1 +1,1 @@
-# Infinite-Runner-Game-Whitehat-PRO-37
+# PRO-C37-INFINITE-RUNNER-GAME
